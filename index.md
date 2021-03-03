@@ -23,10 +23,6 @@ Requirements:
 - Criminal record check (required prior to hire date)
 - We expect the nanny to be COVID-safe and take reasonable precautions as mandated by BC’s Provincial Health Officer in their daily life. 
 
-Compensation:
-- Between CAD 18-23/hour, depending on experience
-- Free on-site parking is available
-
 Start date: As soon as possible
 
 To apply: E-mail nanny@happyprime.io with your CV and cover letter
