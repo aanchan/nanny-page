@@ -1,4 +1,4 @@
-#Nanny wanted for a lovely 8-month old girl
+Nanny wanted for a lovely 8-month old girl
 ---
 We are looking for a full time (30 hours/week), long term nanny for our 8 month old daughter starting March 10th or earlier. My husband and I are both working from home and need a nanny to take care of our daughter during our core work hours. Some help with light housekeeping is also needed. We will both be around to help and work with the nanny during the day.
 
